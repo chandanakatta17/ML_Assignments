@@ -5,4 +5,4 @@ Video link : https://drive.google.com/file/d/1SXf7VRPcZlkE_g_nS89EgEmnZZRT9i4_/v
 ML Assignment 5
 Video link: https://drive.google.com/file/d/10jWrRLd56gzg0-o5nxqjnNsENky-4A7H/view?usp=sharing
 ML Assignment 6
-Video link:https://drive.google.com/file/d/1s0AmUWDyBbGtMRMCeCYNOLduRhPzF2wv/view?usp=sharing
+Video link:https://drive.google.com/file/d/1sSho8LzyRM1VPyGhx1Bgj1zLcqYsO-cE/view?usp=sharing
